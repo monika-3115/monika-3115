@@ -1,4 +1,4 @@
-👋** Hey! I'm Monika **✨
+## 👋 Hey! I'm Monika ✨
 
 Welcome to my little corner on github where my curiosity lives and creations grow—glad you stopped by! 🌟
 
